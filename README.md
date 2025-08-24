@@ -11,8 +11,7 @@ About Me
 
 
 Connect with Me
-- [LinkedIn](https://www.linkedin.com/in/helly-agravat-17b48b284/)  
-- [Instagram](https://www.instagram.com/your_instagram/)  
+- [LinkedIn](https://www.linkedin.com/in/helly-agravat-17b48b284)
 
 
 ⭐ Thanks for visiting my profile!
